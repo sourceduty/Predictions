@@ -45,7 +45,7 @@ Emphasizing change over precise predictions also aligns with the recognition tha
 
 #
 
-> Alex: "The only future projections that could be made are for change itself because this avoids prediction which is impossible."
+> Alex: "*The only future projections that could be made are for change itself because this avoids prediction which is impossible.*"
 
 #
 ### Related Links
